@@ -1,0 +1,1 @@
+# scum-vanilla-loot-and-quests
